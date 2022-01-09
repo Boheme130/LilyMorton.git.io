@@ -17,7 +17,7 @@
 
 
 
-### [Risk Taker](https://boheme130.github.io/RiskTaker/)
+### [Risk Taker](https://boheme130.github.io/RiskTaker/) ⭐️
 嘴欠家庭律师Henry & 嘴欠继兄/战地记者Ivo
 
 <br>
@@ -37,7 +37,7 @@
 <br>
 
 
-### [Gideon](https://boheme130.github.io/Gideon/)
+### [Gideon](https://boheme130.github.io/Gideon/) ⭐️
 深柜暴躁演员Gideon & 威尔士护士Eli
 
 <br>
@@ -61,7 +61,7 @@
 <br>
 
 
-### [Spring Strings](https://boheme130.github.io/SpringStrings/)
+### [Spring Strings](https://boheme130.github.io/SpringStrings/) ⭐️
 毒舌模特Malachi & 暴躁农场主Cadan
 
 <br>
